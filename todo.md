@@ -1,0 +1,1 @@
+sevgilim enesi cok seviyoruumm
